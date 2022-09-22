@@ -40,4 +40,3 @@ You acknowledge that you have read this Agreement and agree to all its terms and
 ## Contacting Us
 If you would like to contact us to understand more about this Agreement or wish to contact us concerning any matter relating to it, you may send an email to instaheat@instaheat.co.
 
-This document was last updated on June 3, 2022
